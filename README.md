@@ -2,7 +2,7 @@
 
 **Analista de Sistemas | Full Stack Developer | Perfil TAM**
 
-Mais de 8 anos construindo sistemas que chegam a pessoas reais — da linha de código ao cliente final.
+Mais de 8 anos construindo sistemas que chegam a pessoas reais, da linha de código ao cliente final.
 
 ---
 
